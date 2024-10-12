@@ -1,1 +1,1 @@
-Samoilenko Denys KV-21 lab-1 Computer Graphic
+Samoilenko Denys KV-21 lab-2 Computer Graphic
